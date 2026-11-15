@@ -8,5 +8,5 @@ China TWS Customer-Anker and Design Win Model Name-A3952
 
 4. From : 2021/1~2021/9
 
-5. https://www.soundcore.com.tw/products/liberty-3-pro
-<img width="973" height="81" alt="image" src="https://github.com/user-attachments/assets/566c2ac9-08bd-47f1-9d56-52417a9108c9" />
+5. https://www.52audio.com/archives/100374.html
+
